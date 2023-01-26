@@ -1,5 +1,5 @@
 - 😇 Hey there! My name is Angel!
-- ✨ I like to play video games, build mechanical keyboards and occasionally draw stuff digitally! 
+- ✨ I like to play video games and build mechanical keyboards!
 - 🌍 Currently based in the Netherlands!
 - ༼ つ ◕_◕ ༽つ Currently doing my best to improve my programming skills!
 
